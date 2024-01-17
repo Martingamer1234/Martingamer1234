@@ -1,11 +1,10 @@
 --------------------------------------
-     Hello My Name Is Im20op1234
+   Hello My Name Is Im20op1234  im20
     I Am A Famous Hypixel Modeler
   contact at phoneredmi9aw@gmail.com
    dont ask why i have it like this
     u dont have to get all my info
-
-              Thats all
+              thats all
 --------------------------------------
 
 <!---
